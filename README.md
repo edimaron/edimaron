@@ -1,5 +1,8 @@
 # Edimaron Almeida
 
+![uma-xicara-de-cafe-cappuccino-e-sobremesa-no-cafe-da-manha-em-uma-mesa-de-madeira-com-um-laptop-para-trabalho-e-acessorios_285885-3562](https://github.com/edimaron/edimaron/assets/88264893/c6bc6a78-071d-4d4b-aa5b-1695c3cfc6b7)
+
+
 Estudante de Engenharia da Computação na Universidade Virtual do Estado de São Paulo, Bahiano com passagens pelo Rio de Janeiro e Rio Grande do Sul, agora residindo atualmente em Votorantim/SP, fome por adquirir conhecimentos na área de programação e de dados, apaixonado por jogos de estratégia.  
 
 ## Conecte-se comigo
